@@ -24,4 +24,4 @@ on a trois types d'utilisateurs :
            
            
            
-             pour plus d'infos au 77 953 05 06
+             pour plus d'infos au 77 953 05 06 ou 77 447 28 48
